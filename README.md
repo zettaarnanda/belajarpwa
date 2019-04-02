@@ -11,5 +11,5 @@ Anita Karin 161552018150146
 4. mohammad sholahuddin
 5. Andhy Wahyudhi//171552018250709
 6. febrian
-7. Sugi Hardianto NIM 150 749 810 377
+7. Sugi Hardianto NIM 150 749 810 377 // 404 Not Found
 8.
